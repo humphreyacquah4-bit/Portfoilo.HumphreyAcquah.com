@@ -1,1 +1,1 @@
-# -humphreyacquah4-bit.github.io
+# humphreyacquah4-bit.github.io
